@@ -6,4 +6,4 @@
 - 💬 Ask me about nothing
 - 📫 How to reach me: you can't.
 - 😄 Pronouns: idiot
-- ⚡ Fun fact: I like shredded cheese
+- ⚡ Fun fact: I like the
